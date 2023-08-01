@@ -1,0 +1,5 @@
+I had the incredible opportunity to volunteer with WWF INDIA on World Environment Day 2023, participating in a campus cleaning drive to promote environmental awareness and sustainable practices. It was an eye-opening experience, witnessing the impact of collective efforts in preserving our planet. Moreover, WWF INDIA organized a poster-making competition, and I was overjoyed to be recognized as a winner.
+
+During the event, I joined passionate individuals in cleaning up the campus, understanding the urgency of protecting our ecosystems, and fostering a sense of responsibility towards nature. The poster-making competition allowed me to creatively express my environmental concerns and vision for a greener future. Winning the prize was truly an honor, but the real reward was the sense of fulfillment in contributing to a meaningful cause.
+
+This experience reaffirmed my commitment to environmental conservation, and I look forward to continuing my journey as a responsible global citizen, working towards a sustainable and harmonious coexistence with nature.
